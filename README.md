@@ -28,11 +28,12 @@ Berliners certainly make the most of summer. Bars such as Yaam and Chez Jacki li
 
 Check out the impressive Schloss Charlottenburg at the west end of the city which has the look of a mini-Versailles. Built as a summer retreat for Queen Sophie-Charlotte by her husband Friedrich I, the first king of Prussian, it was named after Charlotte following her early death in 1705. Following damage in the World War II, the residence has been restored to glory as the last surviving palace belonging to the powerful Hohenzollern family and the only royal residency in the city. Inside the highlight has to be the Neue Flügel (New Wing), where by Friedrich I’s successor, Frederick the Great made his mark. This suite of opulent Rococo state apartments includes the Golden Gallery, dripping in gilt, in contrast to the restrained classical winter chambers of the third inhabitant, Friedrich Wilhelm. The gardens outside the Schloss (Palace in German) are also a gem: at the end stands a Pavilion designed by Karl Friedrich Schinkel, the architect behind the neoclassical Altes Museum on Museum Island. 
 
-**Ascend to an iconic vantage point**
+**Visit the Rechstag and enjoy the view from the roof**
 
-Berlin’s architecture has a fascinating range, from the historical to high modernism and more controversial postmodern projects. A visit to the Reichstag, the home of the German Parliament, provides the perfect overview. The roof of the Reichstag is an entirely glass structure, allowing for a panoramic view of the city right from the centre of government. Entrance to the roof is free but you should try to register in advance. **Pro Tip** Once you’re in you may want to plug into the audio tour for an informative experience. 
+A visit to the Reichstag, the home of the German Parliament, provides the perfect overview. The roof of the Reichstag is an entirely glass structure, allowing for a panoramic view of the city right from the centre of government. Entrance to the roof is free but you should try to register in advance. 
 
 **Fun facts**
 
 * Berlinerisch is a dialect of Berlin Brandenburgish German spoken in Berlin and the surrounding metropolitan area. It originates from a Mark Brandenburgish variant. Phrases in Berlinisch are unique to the city, indicating the manifold origins of immigrants, among them the Huguenots from France.
+
 
