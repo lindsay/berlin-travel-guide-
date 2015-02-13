@@ -24,15 +24,15 @@ The Kulturforum is a museum complex south of Tiergarten housing world-class art 
 
 Berliners certainly make the most of summer. Bars such as Yaam and Chez Jacki line the banks of the Spree to the north while Club der Visionäre sits on stilts on an inlet to the river on the border of the districts of Kreuzberg and Treptow. 
 
-**Discover an older Berlin at Charlottenburg gardens**
-
-Check out the impressive Schloss Charlottenburg at the west end of the city which has the look of a mini-Versailles. Built as a summer retreat for Queen Sophie-Charlotte by her husband Friedrich I, the first king of Prussian, it was named after Charlotte following her early death in 1705. Following damage in the World War II, the residence has been restored to glory as the last surviving palace belonging to the powerful Hohenzollern family and the only royal residency in the city. Inside the highlight has to be the Neue Flügel (New Wing), where by Friedrich I’s successor, Frederick the Great made his mark. This suite of opulent Rococo state apartments includes the Golden Gallery, dripping in gilt, in contrast to the restrained classical winter chambers of the third inhabitant, Friedrich Wilhelm. The gardens outside the Schloss (Palace in German) are also a gem: at the end stands a Pavilion designed by Karl Friedrich Schinkel, the architect behind the neoclassical Altes Museum on Museum Island. 
-
 **Visit the Rechstag and enjoy the view from the roof**
 
 A visit to the Reichstag, the home of the German Parliament, provides the perfect overview. The roof of the Reichstag is an entirely glass structure, allowing for a panoramic view of the city right from the centre of government. Entrance to the roof is free but you should try to register in advance. 
 
-**Fun facts**
+**Discover an older Berlin at Charlottenburg gardens**
+
+Check out the impressive Schloss Charlottenburg at the west end of the city which has the look of a mini-Versailles. 
+
+**Speak like a Berliner...**
 
 * Berlinerisch is a dialect of Berlin Brandenburgish German spoken in Berlin and the surrounding metropolitan area. It originates from a Mark Brandenburgish variant. Phrases in Berlinisch are unique to the city, indicating the manifold origins of immigrants, among them the Huguenots from France.
 
