@@ -34,16 +34,18 @@ Check out the impressive Schloss Charlottenburg at the west end of the city whic
 
 **Speak like a Berliner...**
 
-* Berlinerisch is a metrolect – a mixture of different dialects spoken in Berlin. It originates from a Mark Brandenburgish variant. Phrases in Berlinisch are unique to the city. 
+Berlinerisch is a metrolect – a mixture of different dialects spoken in Berlin. It originates from a Mark Brandenburgish variant. Phrases in Berlinisch are unique to the city. 
 
 Want to sounds like a local in Berlin? Here's how:
 
-* 1. “ich” (I) becomes “ick”
+* “ich” (I) becomes “ick”
 This may please all native speakers of English. In Berlin dialect the soft ch-sound in the word “ich” (I) becomes a k-sound.
 Ick hab keene Zeit. / Ich habe keine Zeit. (I don’t have time.)
 
-* 2. The expression “wa”
+* The expression “wa”
 The word “wa” has different meanings. It can either be a question tag at the end of a sentence or a form of “wir” (we).
 “Da ham wa aba noch mal Glück jehabt, wa?” / “Da haben wir aber noch mal Glück gehabt, oder/nicht wahr?” (Lucky us, aren’t we?)
+
+To be continued..
 
 
