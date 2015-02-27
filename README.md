@@ -1,4 +1,4 @@
-## Essential things to do in Berlin
+## Berlin Travel Tips
 
 **Spend a day on the Museum Island**
 
