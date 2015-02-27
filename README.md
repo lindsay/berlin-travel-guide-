@@ -16,6 +16,13 @@ The Mauerk Park is a mecca for energetic park and market-lovers. The park hosts 
 
 Berliners know how to party. **Pro Tip** Head to Berghain/Panorama Bar, on the border between Kreuzberg and Friedrichshain: this former factory is the bedrock of European techno. Also check out Salon Zur Wilden Renate where you can enjoy a :cool: house party vibe, with three main dance rooms. It’s truly an adventure playground, with a labyrinth underground (see Hidden Berlin). Watergate is also a great club to dance the night away. The downstairs floor in the Watergate has a great panorama window looking directly out onto the Spree, as well as a floating deck terrace for watching the sunrise over Kreuzberg.
 
+:cool: Bars/Clubs:
+* Wilde Renate
+* Club der Visionäre
+* Trust 
+* Watergate
+* Berghain
+
 **Check out Berlin’s art scene** 
 
 The Kulturforum is a museum complex south of Tiergarten housing world-class art galleries. The biggest draw is the Gemäldegalerie, whose collection of early European painting contains English, Spanish and Italian Renaissance works. 
